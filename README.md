@@ -1,3 +1,3 @@
 # gestionagile
 salut je m'appelle Ali Benchekroun
-erth(-j(-jh
+je suis à esisa en 2ème année da,s le groupe B
